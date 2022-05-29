@@ -7,3 +7,8 @@
 ## Opis Międzynarodowego Dnia Uczestników Misji Pokojowych ONZ
 
 Dzień ten po raz pierwszy obchodzony był w 2003 roku, w rocznicę powstania Organizacji Narodów Zjednoczonych ds. Nadzorowania Rozejmu (UNTSO) w 1948 roku w celu monitorowania zawieszenia broni po 1948 wojny izraelsko-arabskiej (Palestyna), która była pierwszą w historii misję pokojową ONZ.
+
+## Cel Dnia Uczestników Misji Pokojowych ONZ
+
+Celem obchodów tego Międzynarodowego Dnia jest oddanie hołdu wszystkich kobietom i mężczyznom, którzy służyli i nadal służą w operacjach pokojowych ONZ, za ich wysoki poziom profesjonalizmu, zaangażowanie i odwagę. Dzień ten jest również okazją, aby uczcić pamięć tych, którzy stracili życie w imię pokoju.
+
